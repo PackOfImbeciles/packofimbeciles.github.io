@@ -1,2 +1,2 @@
 # packofimbeciles.github.io
-gogle pmo ngl
+A fucking url shhortener or smor
